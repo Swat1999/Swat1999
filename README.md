@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning machine learning, neural networking and AI and its been really fun learning all those.
 - 💞️ I’m looking to collaborate on work that lies within my knowledge and expertise where i can greatly contribute and take decisions.
 - 📫 How to reach me 
-      @Jasontodd1967 - My insta
+      @Gremvariety - My insta
       majumderswatick@gmail.com - My mail
       sorry i cannot share my phone number.
 
